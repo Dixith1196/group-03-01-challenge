@@ -12,7 +12,7 @@ of these unsung heroines! I am sometimes(usually){Almost always} late to things.
 
 ## About Chase
 The running speed starts slowly, but gets faster each minute after you hear this signal. 
-[beep] A single lap should be completed each time you hear this sound. [ding]
+[beep] A single lap should be completed each time you hear this sound im innnn. [ding]
 
 ## About Matthew
 Remember to run in a straight line, and run as long as possible. 
